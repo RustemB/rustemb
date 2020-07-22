@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with some big project
 - 💬 Ask me about something
 - 📫 How to reach me: t.me/rustem_b
-- 😄 Pronouns: he
 - ⚡ Fun fact: i'm form Russia
 - 📜 know morse code
